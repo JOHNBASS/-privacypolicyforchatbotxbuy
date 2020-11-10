@@ -1,0 +1,2 @@
+# -privacypolicyforchatbotxbuy
+privacypolicyforchatbotxbuy
